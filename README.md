@@ -63,4 +63,4 @@
 - 📧 [sousa.rodrigues.cesar@gmail.com](mailto:sousa.rodrigues.cesar@gmail.com)
 
 
-> Obrigado pela visita ao meu perfil! Se quiser, posso também preparar uma versão em inglês para ampliar seu alcance em vagas internacionais.
+> Obrigado pela visita ao meu perfil!
